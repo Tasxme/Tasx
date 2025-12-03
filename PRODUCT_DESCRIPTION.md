@@ -6,6 +6,8 @@
 
 Perfect for project management offices (PMOs), agencies, consulting firms, and organizations managing multiple projects across different teams and clients.
 
+Get your free account from https://tasx.me/
+
 ---
 
 ## 🎯 Core Value Proposition
