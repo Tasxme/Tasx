@@ -11,6 +11,16 @@ Perfect for project management offices (PMOs), agencies, consulting firms, and o
 Get your free account from https://tasx.me/
 
 ---
+![image](https://github.com/user-attachments/assets/a6d3c181-89e7-4f52-933f-19017244b589)
+
+![image](https://github.com/user-attachments/assets/325a7ae4-3a32-45a6-8f3a-31b183693a68)
+
+![image](https://github.com/user-attachments/assets/20976ecd-9255-4a2d-8251-08d2e5bcb6c3)
+
+![image](https://github.com/user-attachments/assets/75164d8f-ba04-49bc-a028-db79e80ca613)
+
+![image](https://github.com/user-attachments/assets/4ee27528-a2ee-4343-944b-847ac4e02ed3)
+
 
 ## 🎯 Core Value Proposition
 
